@@ -14,20 +14,20 @@
 
 ┗━✦❘༻༺❘✦━━┛
  
-🌹 ╰─▸ ❝ @[@LannyRose]
-💫 ╰─▸ ❝ Lanny
-💮 ╰─▸ ❝ Likes: 
-• Drawing!
-• Watch Youtube or anime!
-• Spending time with my loved ones!
-• Food! 
-• Cats!
-🌺 ╰─▸ ❝ Dislikes: 
-• Any discrimination, bullying.
-• Disrespect.
-• Ignorance and rudeness.
-• Most of humanity.
-• My exaggerated perfectionism.
+ 🌹 ╰─▸ ❝ @[@LannyRose]
+ 💫 ╰─▸ ❝ Lanny
+ 💮 ╰─▸ ❝ Likes: 
+ • Drawing!
+ • Watch Youtube or anime!
+ • Spending time with my loved ones!
+ • Food! 
+ • Cats!
+ 🌺 ╰─▸ ❝ Dislikes: 
+ • Any discrimination, bullying.
+ • Disrespect.
+ • Ignorance and rudeness.
+ • Most of humanity.
+ • My exaggerated perfectionism.
 
 
 <!---
