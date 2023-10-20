@@ -42,6 +42,11 @@
  
  • My exaggerated perfectionism.
 
+ 🪐 ╰─▸ ❝ Friends:
+• @Tomorinaosabeprogramar
+• @emanuellyvih
+
+
 
 <!---
 LannyRose/LannyRose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
