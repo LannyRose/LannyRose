@@ -44,11 +44,10 @@
 
  🪐 ╰─▸ ❝ Friends:
 
+
 • @Tomorinaosabeprogramar
 
 • @emanuellyvih
-
-<img>https://wallpapers.com/images/hd/my-hero-academia-anime-1cweybdb7h8g4diw.jpg</img>
 
 
 
